@@ -1,6 +1,6 @@
 
 # 💫 About Me:
-I am currently studying: my course which will be completed in four years.<br>This means I will be busy with my academic commitments until then,<br> Don't worry you contant me i confirm respose or reply to my answer.<br>I am also a writer and an editor.
+I am currently studying: my course which will be completed in four years.<br>This means I will be busy with my academic commitments until then,<br> Don't worry you contant me i confirm response or reply to my answer.<br>I am also a writer and an editor.
 
 
 ## 🌐 Socials:
